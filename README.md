@@ -1,1 +1,0 @@
-# ocellsdecatalunya.github.io
